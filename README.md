@@ -1,20 +1,20 @@
 # sexri.com
-性日社区网址发布站   
+JB啦啦网址发布站   
 
-性日社区网址大全： 
+最新网址大全： 
 
-http://sexri.com 
-
-http://sexri.cc 
-
-http://sexri.cn  
-
-http://sexri.cf
-
-http://sexri.ga
-
+http://www.jblala.com
+http://www.jblala.ml
+http://www.jblala.tk
+http://www.jblala.cf
+http://www.jblala.gq
+http://www.jblala.ga
+http://www.aiaisq.com
 http://sexri.ml
-
+http://sexri.com
+http://sexri.cf
+http://sexri.ga
+http://sexri.cc
 
 性日发布器下载地址：https://mega.nz/#!d4Z2jIyL!vAp8s_micaVfYckkdcdrqHnRq2Qiqd7FUg58H96P2NE  
 
